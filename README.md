@@ -1,2 +1,2 @@
 # Profesijas
-Mana nākotnes profesija.
+Mana nākotnes profesija..
